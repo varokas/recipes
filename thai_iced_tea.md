@@ -1,4 +1,4 @@
-Thai tea
+Thai Iced Tea
 ========
 * Water - 2 litre
 * Thai tea leaves - 60g
